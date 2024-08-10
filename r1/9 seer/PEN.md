@@ -1,0 +1,1 @@
+Nobody in 6, seers to find healing potions. None found
